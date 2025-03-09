@@ -1,0 +1,1 @@
+# chyba w 58 59 odcinku a poczatku pokazuje githuba!!!
